@@ -1,1 +1,1 @@
-[# khanh](https://firstprj.infinityfreeapp.com/?i=1)
+(https://firstprj.infinityfreeapp.com/?i=1)
